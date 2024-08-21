@@ -1,4 +1,4 @@
-![IMG_20240614_170432](https://github.com/LeaderXI/WeB-KilleRx/assets/165747611/9100f76f-1af7-4c34-98ea-ea2bffb888f3)
+![IMG_20240614_170432](https://github.com/LeaderXI/WeB-KilleR/assets/165747611/9100f76f-1af7-4c34-98ea-ea2bffb888f3)
 
 
 
